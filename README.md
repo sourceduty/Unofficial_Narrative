@@ -6,7 +6,7 @@ Participating in unbiased speculation and alternative conclusions made outside o
 ![Alternative Mainstream Speculation](https://github.com/user-attachments/assets/7a956a65-c2be-44f4-a2d7-b373a0030b2a)
 #
 
-![Trump Oxi Clean](https://github.com/user-attachments/assets/14f91182-2f76-43d4-bfb6-315fb0c61466)
+![Google](https://github.com/user-attachments/assets/d7e0f306-852d-4966-8a20-dd39c2ab6274)
 
 In July 2024, during a campaign rally in Butler, Pennsylvania, former President Donald Trump survived an apparent assassination attempt when a bullet grazed his ear, resulting in the death of one attendee and injuries to others. The assailant, 20-year-old Thomas Matthew Crooks, was killed by Secret Service agents shortly after the attack. Despite clear evidence—including eyewitness accounts, photographs showing Trump's injury, and official investigations—conspiracy theories rapidly emerged online, claiming the incident was staged. These unfounded theories gained traction across the political spectrum, with some suggesting the event was orchestrated to garner sympathy or manipulate public opinion. However, thorough fact-checking by reputable news organizations and investigations by law enforcement agencies have found no credible evidence supporting these claims. The spread of such misinformation highlights the challenges of combating false narratives in the digital age, especially when they can influence public perception and discourse.
 
