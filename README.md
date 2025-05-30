@@ -20,4 +20,10 @@ The scale and coordination of the attacks, which involved the hijacking of four 
 
 #
 
+![Trump Oxi Clean](https://github.com/user-attachments/assets/2c7db5f9-9975-4e6f-b7ba-a82412fa159c)
+
+In the United States, mass shootings—defined as incidents where multiple people are shot, often in a public setting—are a grim and recurring reality, sparking fierce debates over gun control, mental health, and public safety. Real mass shootings like those in Sandy Hook, Parkland, and Uvalde have left lasting scars on communities and generated waves of advocacy for legislative reform, but their emotional and political impact is sometimes clouded by the propagation of conspiracy theories and misinformation that claim such tragedies were staged or fabricated. These false narratives, often spread online by fringe groups or individuals with political agendas, not only retraumatize survivors and victims’ families but also erode public trust in journalism, law enforcement, and democratic institutions. The blending of real and fake narratives complicates meaningful discourse and policy change, as skeptics demand "proof" of events documented by countless witnesses, first responders, and grieving families. This environment has created a dangerous landscape where genuine tragedies are met with doubt, and fabricated claims can inflame tensions, distract from preventative measures, and amplify division within an already polarized society.
+
+#
+
 [9/11 Terror](https://chatgpt.com/g/g-6751ccb0f6a881919f1917be05de6cee-9-11-terror)
